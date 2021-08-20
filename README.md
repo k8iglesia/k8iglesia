@@ -1,5 +1,5 @@
 - 🍒 Hi, I’m Kate!
-- 🍇 I’m interested in 2D & 3D graphics, coding, mixing tunes, & video games
+- 🍇 I’m interested in 2D graphics, 3D npr, coding, mixing tunes, & video games
 - 🍉 I’m currently learning web development & 3D rendering
 - 🍊 I’m looking to collaborate on music, design, & digital art
 - 💌 Feel free to reach out: k8iglesia@gmail.com
